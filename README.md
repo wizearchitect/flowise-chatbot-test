@@ -1,1 +1,1 @@
-# Welcome to Prestahop @github/wizeaechitect!
+# Welcome to AI Synthetica !
